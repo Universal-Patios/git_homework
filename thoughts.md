@@ -4,3 +4,5 @@ Second takeaway is that you should try your hardest to figure out problems on yo
 Strategy one I am committed to trying during the rest of Mod 0 is scheduling times everyday to work on my main project. Breaking each section up into smaller bits. Instead of trying to work on everything all at once
 
 Strategy two is to post more questions and things I am unsure of in the slack channel than I usually would. Usually I just try my best instead of publicly asking for help in that manner
+
+Shout out to my wife who is always there for me and helps with anything I need. Who is very understanding when I need to take time from us to focus on schoool
